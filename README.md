@@ -1,4 +1,4 @@
-Hi, I'm Hemang Shrimali 
+Hi, I'm Hemang Shreemali 
 
 ICT Engineering student at Pandit Deendayal Energy University.
 
